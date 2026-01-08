@@ -1,5 +1,5 @@
 # 💫 About Me:
-Student <br>Name Abdilla <br>Learnig Prigraming <br>Fun Fact tourism
+ Name Abdalla <br> Student <br>Learnig Prigraming <br>Fun Fact Tourism
 
 
 ## 🌐 Socials:
